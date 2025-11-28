@@ -17,3 +17,5 @@ the Baldwin way is strength, restraint, and self-control — not revenge.
 
 We follow the principle taught by our father:
 Stand strong, stay disciplined, and avoid unnecessary fights or feuds.
+
+Known history of our family is if our head takes too many blows we may black out amd not remember and sometimes odd things happen. brain stem cancer has been known in history of our family.

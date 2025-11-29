@@ -1,4 +1,4 @@
---- BEGIN DOCUMENT - COPY EVERYTHING BELOW THIS LINE ---
+--- BEGIN DOCUMENT - COPY EVERYTHING BELOW THIS LINE ---  Not In Use Example
 
 **IGI Pugilasonic Order**  
 Official Charter & By-Laws  
